@@ -12,3 +12,7 @@
 * __Plain style__ —Puritan style of writing; a simple way of writing; direct and to the point; simple diction: simple sentence structure; clear images
 * They believed that hard work was Godly
 * They also believed that evil doers suffer and are destroyed; true believers and good doers may suffer as well, as worldly misfortune due to God's test of fait and God's will.
+
+### missing day 2
+### Day 3
+*
