@@ -4,6 +4,7 @@
   * she doesnt was more about pleasures of visible world than the invisible(heaven)
   * she was a midwife
   * became preacher and was charged with haresy 
-  ##### Unkown poem
+  
+ #### Unkown poem
   * she says men write about important things and she's not going to attemp
     * 
