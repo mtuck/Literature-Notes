@@ -14,3 +14,6 @@ john milton adam and eve
 
 __epistology__ - letter to someone else. Paul epistols to the romans
 __Speaker/poet__
+__Theodicy__
+She questioned god with the death of her grandbaby
+ 
